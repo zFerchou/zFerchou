@@ -1,4 +1,4 @@
-# Soy Luis Fernando Medina Arredondo 👋
+# Soy Luis Fernando Medina Arredondo 
 
 ### Ingeniero en Gestión de Software | Product Owner | Scrum Master
 
